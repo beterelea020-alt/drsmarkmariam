@@ -1,2 +1,0 @@
-# drsmarkmariam
-انفتنيشن 
